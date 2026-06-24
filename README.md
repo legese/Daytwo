@@ -5,8 +5,3 @@ NEW LIFE
 
 
 DAY THREE 
-
-
-AND TODAY IS X-MAS 
-
-"things will be okeyee"
